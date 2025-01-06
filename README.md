@@ -1,1 +1,0 @@
-# telusko-guy
